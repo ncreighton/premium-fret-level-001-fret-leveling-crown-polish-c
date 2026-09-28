@@ -1,0 +1,2 @@
+# premium-fret-level-001-fret-leveling-crown-polish-c
+Tired of inconsistent fret jobs that force you to re-level or re-crown? Your leveling beam might be straight, but without a structured process, your results will always be hit-or-miss. This workshop turns a tedious repair into a repeatable, meditative craft.  This Notion template systematizes the entire fret leveling and crown polish workflow, from
